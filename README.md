@@ -2,4 +2,4 @@
 Research Project
 
 
-Degree in Criminology and started BSc Computing
+Degree in Criminology and started BSc Computing 2017
